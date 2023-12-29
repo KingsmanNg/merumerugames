@@ -56,6 +56,6 @@ If We need to rely on consent as a legal basis for processing Your information a
 
 ### Contact Us
 
-If you have any questions or concerns about our privacy policy please email to : k40465670@gmail.com@gmail.com
+If you have any questions or concerns about our privacy policy please email to : k40465670@gmail.com
 
 Copyright © 2023 Meru Meru Games. All Rights Reserved.
